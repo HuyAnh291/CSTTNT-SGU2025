@@ -1,1 +1,2 @@
-# C-S-Tr-Tu-Nh-n-T-o-SGU-2025
+Trần Nguyễn Huy Anh 
+MSSV 3123410010
